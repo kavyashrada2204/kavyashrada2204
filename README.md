@@ -19,8 +19,6 @@ Electrical and Electronics Engineering Student | Aspiring Automation Engineer
  • MATLAB
 
 ## Connect
-LinkedIn: www.linkedin.com/in/kavya-shrada-s-s-a36121324
-Mail: kavyashrada2204@gmail.com
 
-LinkedIn: Add later
-Email: Add later
+LinkedIn: www.linkedin.com/in/kavya-shrada-s-s-a36121324
+Email: kavyashrada2204@gmail.com
