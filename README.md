@@ -1,4 +1,4 @@
-# Hi, I'm Kavyashrada 👋
+# Hi, I'm Kavya Shrada 👋
 
 Electrical and Electronics Engineering Student | Aspiring Automation Engineer
 
